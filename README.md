@@ -1,2 +1,2 @@
 # golivingbest
-Introduction to golivingbest family by website www.golivingbest.com
+Introduction to golivingbest family via the website www.golivingbest.com
